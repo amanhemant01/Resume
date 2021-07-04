@@ -4,4 +4,4 @@ https://amanhemant01.github.io/Resume/
 
 
 
-New resume is soon about to come
+Working on the new resume, will be out soon.
